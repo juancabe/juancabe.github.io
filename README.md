@@ -10,4 +10,4 @@
 código código xdxdxdxd
 ```
 
-[Image](https://s1.1zoom.me/big0/469/Vladimir_Putin_Men_Brown_Bears_Run_533027_1280x800.jpg)
+![Image](https://s1.1zoom.me/big0/469/Vladimir_Putin_Men_Brown_Bears_Run_533027_1280x800.jpg)
